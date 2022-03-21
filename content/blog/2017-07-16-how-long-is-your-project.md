@@ -19,7 +19,7 @@ All weekend, the incredible pain and grief of our Branford friends dominated our
 
 Last night, the Branford Town Green lived up to its role as the heart of the community. Thousands of people showed up to celebrate Ben’s life. Thanks to the reporting of Steve at [BranfordSeven.com](http://www.branfordseven.com/), I was able to watch a live stream of the ceremony.
 
-<iframe src="https://www.facebook.com/plugins/video.php?height=316&href=https%3A%2F%2Fwww.facebook.com%2FBranfordSeven%2Fvideos%2F1696762903685798%2F&show_text=false&width=560&t=0" width="560" height="316" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true"></iframe>
+<iframe src="https://www.facebook.com/plugins/video.php?height=316&href=https%3A%2F%2Fwww.facebook.com%2FBranfordSeven%2Fvideos%2F1696802467015175%2F&show_text=false&width=560&t=0" width="560" height="316" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true"></iframe>
 
 The Branford First Selectman, the Branford Public Schools Superintendent, coaches, teachers, and friends all stood up to speak about the impact Ben had on their lives. Two young men shared what they learned from Ben:
 
